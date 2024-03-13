@@ -4,7 +4,5 @@ Shortcuts lover, minecraft PVPer, minecraft hacker...
 ![SDOS](icon.png)  
 [SDOS page](https://github.com/NHCMbppp/SDOS)  
 ### My chatting account:  
-Wechat:  
-![wechat](wechat.png)  
 QQ:  
 ![QQ](qq.png)
